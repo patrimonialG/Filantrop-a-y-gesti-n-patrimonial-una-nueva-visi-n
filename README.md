@@ -1,1 +1,2 @@
-# Filantrop-a-y-gesti-n-patrimonial-una-nueva-visi-n
+# Filantropia-y-gestion-patrimonial-una-nueva-vision
+La filantropía ha evolucionado de un acto benéfico ocasional a una poderosa herramienta estratégica en la gestión de patrimonios. Las empresas no solo buscan ayudar a causas sociales, sino también crear legados financieros con impacto. Hoy en día, las donaciones y acciones sociales generan rentabilidad y fortalecen las relaciones comunitarias, construyendo un modelo de negocios basado en la responsabilidad social y el bienestar común.
